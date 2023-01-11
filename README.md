@@ -27,8 +27,8 @@
 
 ## Connect With Me 🌱
 * [`Instagram`](https://instagram.com/_nzrlafndi)
-* [`Whatsapp`](https://wa.me/6281540022632?text=Assalamualaikum)
-* [`Whatsapp Group`](https://chat.whatsapp.com/KXqad1SSAk64AmV8IHsoZZ)
+* [`Whatsapp`](https://wa.me/6285609233482?text=Assalamualaikum)
+* [`Whatsapp Group`](https://chat.whatsapp.com/EQWE3o2Og6xC78FE5RC4Od)
 * [`Youtube`](https://youtube.com/c/NzrlAfndi)
 * [`Github`](https://github.com/NzrlAfndi)
 
